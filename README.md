@@ -1,2 +1,52 @@
 # Helium-Mobile-Referral-Code
+
 A collection of referral code for Helium Mobile
+
+Please open an issue to add new ones or delete expired ones.
+
+
+- REYM3AZ
+- 2Z8PC47
+- 5E1C7G9
+- C0D1ZNI
+- FDFXS2F
+- 6E789AH
+- 3AAB2IU
+- PUY30NH
+- BCG20Z2
+- 4JE1BKP
+- SSFCBH6
+- W799SVQ
+- DFJGTBU
+- FZ4HLEL
+- 64E3OCY
+- 91LL1XE
+- D9N7LP8
+- E9PN2I7
+- ID3W5ZJ
+- Q6B9ZBM
+- NLWWF9Y
+- 1SF6AST
+- 54BUO1D
+- BU6TJAR
+- BU6TJAR
+- S37WYIF
+- BA5S55Q
+- ZYRXX2G
+- 3AQPLRI
+- 267D1NO
+- JIEG3TU
+- A28B26U
+- U40I2IK
+- U40I2IK
+- IL35JQO
+- 5VISMQE
+- JC7NNV7
+- 9WFX797
+- XIKD4TD
+- 5GCOMJS
+- 213AHPY
+- MP7P7VA
+- CKOGUXX
+- 12RE60V
+- E58XLOP
